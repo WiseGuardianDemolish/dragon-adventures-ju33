@@ -1,4 +1,4 @@
-
+Experience dragon adventures like never before with dragon adventures exclusive Script, the #1 Script. Includes anti-ban and auto-collect for
 
 
 
